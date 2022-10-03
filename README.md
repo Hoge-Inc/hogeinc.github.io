@@ -1,0 +1,1 @@
+# hogeinc.github.io
